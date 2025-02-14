@@ -5,7 +5,7 @@
 Looking for a way to get **free Amazon gift cards** instantly? You’re in the right place! Amazon gift cards are a fantastic way to shop for your favorite items without spending money. In this guide, we’ll explore the **best ways to earn Amazon gift cards** and how you can redeem them for exciting purchases.
 Visit **[OffZipper](https://offzipper.com/cardcode/)**
 Visit **[OffZipper](https://offzipper.com/cardcode/)**
-
+https://github.c
 ## 1. Earn Free Amazon Gift Cards Through Surveys  
 Many reward-based platforms offer **free Amazon gift cards** for completing simple surveys. Websites like Swagbucks and InboxDollars allow users to collect points and redeem them for gift cards.
 
